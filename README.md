@@ -1,2 +1,2 @@
-# b.enterprises-formula
-New way of farming , our way new way of land preparation helping fight climate change
+# b.enterprises-formula The
+New way of farming , our new way of land preparation, which will help fight climate change
